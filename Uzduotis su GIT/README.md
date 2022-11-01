@@ -1,3 +1,1 @@
 Viena EILUTĖ.
-
-ANTRA EILUTĖ.
